@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **antonioaclb00@gmail.com**
 
-- ⚡ Fun fact **i like to play basketball and football. I'm in the 2nd semester of the systems analysis and development course**
+- ⚡ Fun fact **i like to play basketball and football. I'm in the 3nd semester of the systems analysis and development course**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
